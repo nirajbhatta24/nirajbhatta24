@@ -16,7 +16,7 @@
 ![](https://github-profile-trophy.vercel.app/?username=nirajbhatta24&theme=algolia&no-frame=true&no-bg=true&margin-w=4)
 
 ---
-[![](https://visitcount.itsvg.in/api?id=nirajbhatta24&icon=5&color=7)](https://visitcount.itsvg.in)
+[![](https://visitcount.itsvg.in/api?id=nirajbhatta24&icon=5&color=8)](https://visitcount.itsvg.in)
 ![ssofhome](https://user-images.githubusercontent.com/79129703/225275914-30a95bc3-f871-4652-89d9-c5d8ecd86f83.png)
 
 
